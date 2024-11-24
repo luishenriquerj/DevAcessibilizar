@@ -106,4 +106,3 @@ Christal Bruneli Camillo - christal.b.camillo@gmail.com
 Grazielly Kelly Souza Soares de Lima - nakaelbsi@gmail.com
 Luís Henrique das Neves Ribeiro - luishenrique.rj@gmail.com
 Taiãma América Mendes de Souza - taiamasouza@outlook.com
-Vinicius de Novais Zacharias - vinizacharias@gmail.com
